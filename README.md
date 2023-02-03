@@ -1,5 +1,4 @@
 # ksgj123
-快速关机
 ~MEAGGEBO~
 
 -LNHKGKGCIJ-
